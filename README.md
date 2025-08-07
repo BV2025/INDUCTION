@@ -1,6 +1,6 @@
 # INDUCTION PROGRAMME BTECH-CSE 2025
 # DAY-1: WELCOME & INTRODUCTION
-###### Prayer is not asking. It is a longing of the soul ![Gurudwara Sahib](C:\Users\Dell\Desktop)
+###### Prayer is not asking. It is a longing of the soul 
 ## 8:30 AM- 9:30AM
 #### Everyone started their very first day by *seeking blessings from GURUDWARA SAHIB* . An event was organised by the faculty for the 2025 batch's joyful journey.
 ## 9:30AM - 10:00AM 
