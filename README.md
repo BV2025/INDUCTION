@@ -71,7 +71,7 @@
 ## 12:30PM - 1:30PM 
 #### *BREAK*
 ## 1:30PM - 3:30PM
-#### The day concluded by BEEE and Maths lecture by Professor Harminder Kaur and Gangandeep Kaur Lotey respectively were addressed to everyone.
+#### The day concluded by BEEE and Maths lecture by Professor Harminder Kaur and Gangandeep Kaur Lotey respectively .
 
 
 
